@@ -3,5 +3,6 @@
 #### Email: trainaf04@gmail.com
 #### Website: N/A
 #### Image: 
-![image](https://github.com/user-attachments/assets/ebb190de-de31-4aee-92a9-71a9c91193f8)
+![WIN_20240826_14_00_07_Pro](https://github.com/user-attachments/assets/5701421f-fa01-43dd-9866-b52e158bd5c0)
+
 
