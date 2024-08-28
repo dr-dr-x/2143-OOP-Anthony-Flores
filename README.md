@@ -3,4 +3,5 @@
 #### Email: trainaf04@gmail.com
 #### Website: N/A
 #### Image: 
-https://im.ge/i/WIN-20240826-14-01-13-Pro.ftXJ2p
+![image](https://github.com/user-attachments/assets/ebb190de-de31-4aee-92a9-71a9c91193f8)
+
